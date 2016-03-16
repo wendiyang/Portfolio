@@ -16,13 +16,13 @@ Restaurant homesite, WordPress build
 Taste It: http://tasteitorder.variousfire.com.au/ 
 Restaurant homesite, WordPress build
 
-Aero Image:　http://aeroimage.com.au/ 
+Aero Image: http://aeroimage.com.au/ 
 Car fixing company homesite, WordPress build
 
 J Plus B Cleaning: http://jplusbcleaning.com.au/ 
 Cleaning company homesite, WordPress build
 
-APEI:　http://apei.edu.au/ 
+APEI: http://apei.edu.au/ 
 Language school homesite, WordPress build
 
 Timber Chair Plus: http://timberchairsplus.com.au/
